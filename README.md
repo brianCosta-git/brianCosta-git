@@ -1,4 +1,4 @@
-# Hi, I'm Brian Coelho Costa! 👋
+# Hi, I'm Brian Costa! 👋
 
 ### 🚀 Software Engineering Student & Pharmacist | HealthTech & AI
 
